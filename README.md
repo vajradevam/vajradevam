@@ -1,1 +1,1 @@
-I like to optimize things using basic mathematics.
+The father of modern AI Bullshitery and Senior Tech Lead Poject Manager + Senior Researcher + Artificial Intelligence Heuristic Adverserary + Generic Window$ (Developed by LORD BIG LATES) user with 200% scaling white themed centered taskbar with round buttons.
