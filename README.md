@@ -13,7 +13,7 @@ You have three days to live.
 Build only what matters.
 
 Allergic to bullshit.
-Windows by choice. Keyboard first.
+Linux by choice. Keyboard first.
 
 If you’re here to learn, proceed.
 If you’re here to collaborate, be precise.
