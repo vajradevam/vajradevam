@@ -19,4 +19,4 @@ If you’re here to learn, proceed.
 If you’re here to collaborate, be precise.
 Otherwise, don’t.
 
-— Aman Pathak
+Aman Pathak
