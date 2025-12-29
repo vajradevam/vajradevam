@@ -1,11 +1,11 @@
 # Aman Pathak
 
-Computer Scientist | Engineer | Thinker | Philosopher
+Computer Scientist | Engineer | Thinker | Philosopher | Natural Stupidity
 
 Senior Tech Lead | Project Manager | Senior Researcher
 Artificial Intelligence Heuristic Adversary
 Generic Window$ user with 200% scaling, white theme, centered taskbar, round buttons
-Natural Stupidity
+
 Totally not a Clanker
 
 ---
