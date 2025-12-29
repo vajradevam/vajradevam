@@ -1,7 +1,3 @@
-Here’s a **~10× shorter** version, preserving tone and intent:
-
----
-
 **Aman Pathak**
 
 Engineer. Researcher. Skeptic.
