@@ -2,7 +2,7 @@
 
 Engineer. Researcher. Skeptic.
 
-I work across systems—from low-level mechanics to high-level abstractions—focused on how things *actually* work.
+I work across systems, from low-level mechanics to high-level abstractions, focused on how things *actually* work.
 I build, question, and dismantle ideas that fail scrutiny.
 
 I value correctness over trends, clarity over noise, and utility over decoration.
