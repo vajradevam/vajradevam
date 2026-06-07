@@ -1,2 +1,12 @@
-What I find mysterious about consciousness is the idea that a bunch of unrelated and independent atoms that make up your brain can interact in such a way to create your subjective experience. It's mysterious how something can be greater than the sum of its parts in this way. And it occurs to me that we know of another phenomenon similar to this: quantum entanglement, the phenomenon where two particles have a relation to each other, and thus they're not really independent of each other and together form something greater than the sum of their parts. So what if our subjective experience is related to this phenomenon or is in fact a version of this phenomenon?
+░█░█░█▀█░█▀█░█▀█░█░█
+░█▀█░█▀█░█▀▀░█▀▀░░█░
+░▀░▀░▀░▀░▀░░░▀░░░░▀░
+
+░█▀▄░▀█▀░█▀▄░▀█▀░█░█░█▀▄░█▀█░█░█
+░█▀▄░░█░░█▀▄░░█░░█▀█░█░█░█▀█░░█░
+░▀▀░░▀▀▀░▀░▀░░▀░░▀░▀░▀▀░░▀░▀░░▀░
+
+░█░█░█░█░█░█░█▀▀░█░█░▀█▀░█
+░█▀▄░█▀█░█░█░▀▀█░█▀█░░█░░▀
+░▀░▀░▀░▀░▀▀▀░▀▀▀░▀░▀░▀▀▀░▀
 
